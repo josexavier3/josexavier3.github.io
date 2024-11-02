@@ -1,1 +1,1 @@
-[![Notion Icon](assets/images/Notion.png)](https://observant-galaxy-19c.notion.site/Jos-Xavier-1dfdc6cf969149f98758303ec43102b0) [José Xavier's Publications](https://observant-galaxy-19c.notion.site/Jos-Xavier-1dfdc6cf969149f98758303ec43102b0)
+[![Notion:](assets/images/Notion.png)](https://observant-galaxy-19c.notion.site/Jos-Xavier-1dfdc6cf969149f98758303ec43102b0) [José Xavier's Publications](https://observant-galaxy-19c.notion.site/Jos-Xavier-1dfdc6cf969149f98758303ec43102b0)
